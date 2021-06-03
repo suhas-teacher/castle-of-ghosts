@@ -1,1 +1,1 @@
-# castle-of-ghosts
+# CASTLE-OF-GHOSTS
